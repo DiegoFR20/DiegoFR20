@@ -1,5 +1,6 @@
-### Eae,  👋
-<img width="auto src="https://avatars1.githubusercontent.com/u/44952566?s=460&u=49bddba335686455066ac46e94842fc48ecdba22&v=4">
+### Opa, tranquilo?  👋
+https://avatars1.githubusercontent.com/u/44952566?s=460&u=49bddba335686455066ac46e94842fc48ecdba22&v=4
+                                                                                                                             
 <!--
 **DiegoFR20/DiegoFR20** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
