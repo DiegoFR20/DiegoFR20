@@ -14,5 +14,5 @@ tempo, foco e comunicação. Sou fluente em português e tenho proficiência ava
 em inglês (nível C1).
 
 ### Celular: +55 61 9 99627-9262
-### LinkedIn: https://www.linkedin.com/in/diego-freire-de-andrade-94931015b/
+### LinkedIn: https://www.linkedin.com/in/diegofreire97/
 ### Email: diegofreire8482@hotmail.com
